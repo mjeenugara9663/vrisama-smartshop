@@ -1,0 +1,1 @@
+# vrisama-smartshop
